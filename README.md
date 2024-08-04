@@ -1,6 +1,6 @@
 ## Bem vindo ao meu perfil 
 
-# Me chamo Victor Carvalho
+Me chamo  _Victor Carvalho_
   
 * Estou fazendo curso na [Alura](https://cursos.alura.com.br/user/00001116789656SP)
 
