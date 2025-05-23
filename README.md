@@ -10,7 +10,7 @@ Me chamo  _Victor Carvalho_
 
   ### voçe pode entrar em contato comigo
 
-  victorcarvalhosilva222@gmail.com
+  ✉victorcarvalhosilva222@gmail.com
   
   @victor_c.s.f
 
